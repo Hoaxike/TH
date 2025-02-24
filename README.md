@@ -42,3 +42,5 @@ RonaldWang232TH3@icloud.com
 alicerojas2101AT2@icloud.com
 rozzmartin1412@icloud.com
 EmaniMyers242TH3@icloud.com
+MaggieHayes242TH3@icloud.com
+MalikGlenn242TH3@icloud.com
